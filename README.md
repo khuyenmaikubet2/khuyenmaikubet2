@@ -1,16 +1,15 @@
-### Hi there 👋
+### Khuyến mãi Kubet
 
-<!--
-**khuyenmaikubet2/khuyenmaikubet2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Khuyến mãi Kubet luôn nhận được quan tâm lớn từ anh em cá cược Cùng điểm qua các ưu đãi Ku Cassino hot nhất 2024 này ngay bên dưới!
 
-Here are some ideas to get you started:
+- Địa chỉ: 17/1 Tô Ngọc Vân, Tam Phú, Thủ Đức, Thành phố Hồ Chí Minh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0814714309
+
+- Website: https://kubet.coach/khuyen-mai-kubet/
+
+https://www.pinterest.com/khuyenmaikubet2/
+
+https://www.youtube.com/channel/UCrdhkrwKZZ7S-WZnllSR6Bg
+
+https://gravatar.com/khuyenmaikubet2
